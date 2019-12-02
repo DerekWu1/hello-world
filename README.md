@@ -6,3 +6,5 @@ It is at this point in time of our hero's life that he realised that something n
 But a fulfilling and interesting life does not come easy. If our hero wanted a fulfilling life, he knew that he would have to work hard for it, just like the other heroes before him did. Our hero got to work. He explored the world, to see what passsions and interests moved his soul the most. Helping people, he thought, was something he could commit himself to, and do forever. He had loved to be of use and help ever since he was young. But help people how? This was the hard part. Our hero had lived a relatively easy going suburban lifestyle, and had never truly been challenged before. 
 
 And so began our hero's quest to find out more about the world that they lived in. 
+
+Perhaps you might think that this is a cliched story. Perhaps this might be your first time hearing this story. Regardless of what type of person you are, it is important that this story is to be told. Because this isn't just about the hero. This story is about you.
